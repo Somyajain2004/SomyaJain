@@ -1,2 +1,2 @@
-# Hi there, I'm SomyaJai 🪶
+# Hi there, I'm SomyaJain 🪶
 
